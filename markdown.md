@@ -23,5 +23,5 @@ Four centuries later the shipwreck was discovered under 30 feet of icy water, tr
 * Silver sculpture of a grotesque face.
 * Gold ducats
 
-The Author: Veteran Belgin dicer Robert Sténuit spent two days at 432 feet beneath the sea in a pioneering test he described in “The Deepest Days”, National Geographic, April 1965. Here he tells the dramatic story of finding the Girona.
+*The Author*: **Veteran Belgin dicer Robert Sténuit spent two days at 432 feet beneath the sea in a pioneering test he described in “The Deepest Days”, National Geographic, April 1965. Here he tells the dramatic story of finding the Girona.**
 
